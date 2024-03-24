@@ -5,6 +5,7 @@ My social networks:
 - https://twitter.com/diegoveloper
 - https://tiktok.com/@diegoveloper
 - https://youtube.com/@diegoveloper
+- https://instagram.com/diegoveloper
 - https://bio.link/diegoveloper
 
 
